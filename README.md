@@ -1,2 +1,1 @@
-# motiv_yuki
-gadis salju
+# ulangtahun
